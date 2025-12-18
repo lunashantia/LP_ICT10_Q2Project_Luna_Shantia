@@ -1,1 +1,1 @@
-# Campus_ICT10_Q2Project_Luna_Shantia
+# LP_ICT10_Q2Project_Luna_Shantia
